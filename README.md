@@ -1,2 +1,2 @@
 # IELTS-Writing-task-2-responses
-BMGsnare's collection
+BMGsnare's IELTS writing task 2 collection
